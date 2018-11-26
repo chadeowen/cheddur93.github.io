@@ -7,7 +7,7 @@ subtitle: Why I'm the coolest loser you'll meet
 My name is Chad Owen. I have the following qualities:
 
 - I rock a mediocre beard
-- I'm extremely loyal to my family
+- I'm extremely loyal to my gang
 
 What else do you need?
 
